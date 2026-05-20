@@ -1,0 +1,1 @@
+[Avaliação Parcial 02 - Engenharia de Software - Sistemas de Informação (1) (1).pdf](https://github.com/user-attachments/files/28075639/Avaliacao.Parcial.02.-.Engenharia.de.Software.-.Sistemas.de.Informacao.1.1.pdf)
